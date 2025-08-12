@@ -1,0 +1,1 @@
+ini sahabat saya
